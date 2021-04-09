@@ -14,4 +14,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+**Be Happy☆**
+
 ![kirin](70561872_p0.jpeg)
