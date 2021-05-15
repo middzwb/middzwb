@@ -27,4 +27,4 @@ Here are some ideas to get you started:
 ![4299777_p0](https://i.loli.net/2021/05/15/8LovbZdsJVWI9j5.jpg)
 -->
 
-![rika.png](https://i.loli.net/2021/04/11/oJTtklcPLZpbWH8.png)
+![4299777_p0.jpg](http://ww1.sinaimg.cn/large/e3424d7bgy1gqj5rkt2h7j20rs0rsh5n.jpg)
