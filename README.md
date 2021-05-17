@@ -25,6 +25,7 @@ Here are some ideas to get you started:
 ![rika.png](https://i.loli.net/2021/04/11/oJTtklcPLZpbWH8.png)
 ![8092540_p0.jpg](https://i.loli.net/2021/05/15/Kp4Xw3aCsuUfAm9.jpg)
 ![4299777_p0](https://i.loli.net/2021/05/15/8LovbZdsJVWI9j5.jpg)
+![4299777_p0.jpg](http://ww1.sinaimg.cn/large/e3424d7bgy1gqj5rkt2h7j20rs0rsh5n.jpg)
 -->
 
-![4299777_p0.jpg](http://ww1.sinaimg.cn/large/e3424d7bgy1gqj5rkt2h7j20rs0rsh5n.jpg)
+![41264142_p0.jpg](http://ww1.sinaimg.cn/large/e3424d7bgy1gqlp0z8tsvj20sg0g0neb.jpg)
